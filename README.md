@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+velog : https://velog.io/@bfdsh
+
 <!--
 **MYKIM95/MYKIM95** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
