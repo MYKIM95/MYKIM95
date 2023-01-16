@@ -1,4 +1,6 @@
 ### Hi there 👋
+Welcome to Min Young Kim Github!
+Hope You Have a Nice Day! ☀️
 
 velog : https://velog.io/@bfdsh
 
