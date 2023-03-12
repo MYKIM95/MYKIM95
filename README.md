@@ -2,6 +2,8 @@
 
 Hope You Have a Nice Day! ☀️
 
+Resume : <a href="https://wiggly-plantain-5e8.notion.site/4302d0cb841c45f4b545083cc23134ba"> ✨ Min Young Kim Resume ✨ <a>
+  
 velog : https://velog.io/@bfdsh
 
 <!--
